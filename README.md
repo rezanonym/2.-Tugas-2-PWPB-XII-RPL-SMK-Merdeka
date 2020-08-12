@@ -1,2 +1,1 @@
-Fitrana Soleh Hidayat
-181020303
+181020303 Fitrana Soleh Hidayat
